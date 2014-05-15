@@ -56,3 +56,10 @@
 #### 5/12/14 ####
 > never settle for less than what you are capable of or you will never live the fulfilling life you deserve
 
+#### 5/13/14 ####
+> if someone is talking shit to you about someone, be very cautious of them.
+
+> Whatever you say they will probably repeat
+
+#### 5/14/14 ####
+> don't do cocaine
